@@ -1,2 +1,1 @@
-
-https://discord.com/api/webhooks/794268820142555148/ihi4S5_seK2AXy8cMRq2ldzUkw_XA7vX-tNXVdkBfuql6gKrIPoqRtaKT78M5Fo6WQR0
+https://share.discohook.app/go/moao2m6u
